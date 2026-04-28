@@ -4,7 +4,7 @@
 👉 [https://91bdy.com](https://91bdy.com)
 
 🌐 **备用地址**（推荐开VPN）：
-👉 [https://91bdy.1com](https://91bdy.1com)
+👉 [https://91bdy1.com](https://91bdy1.com)
 
 📢 Telegram 通知群：
 👉 [https://t.me/bdy1_91](https://t.me/bdy1_91)
