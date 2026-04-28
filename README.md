@@ -1,16 +1,15 @@
-## Hi there 👋
+# 91bdy 最新地址更新页
 
-<!--
-**91bdy/91bdy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🔥 **最新访问地址**：
+👉 [https://91bdy.com](https://91bdy.com)
 
-Here are some ideas to get you started:
+🌐 **备用地址**（推荐开VPN）：
+👉 [https://91bdy.1com](https://91bdy.1com)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📢 Telegram 通知群：
+👉 [https://t.me/bdy1_91](https://t.me/bdy1_91)
+
+📧 邮箱获取最新地址：
+发任意邮件到：`91bdy@proton.me`
+---
+⭐ 建议收藏本页面，地址随时更新
